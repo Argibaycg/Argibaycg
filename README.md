@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 
-** Soy Gaston** Currently living on Buenos Aires Argentina / Actualmente vivo en Buenos Aires Argentina
+Soy Gaston Currently living on Buenos Aires Argentina / Actualmente vivo en Buenos Aires Argentina
 
 A little bit about me / Un poco sobre mi: 
 
